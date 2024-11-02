@@ -2,3 +2,4 @@ well, every week listening some passage I like from the Youtube, record some wor
 
 the pourpose of this is remember some words and sentences.
 122
+33444
